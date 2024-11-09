@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UZBLEGENDA
+- 👋 Hi, I’m SAIDKHON.DESIGN
 - 👀 I’m interested in the IT field
 - 🌱 I’m currently learning at school
 - 💞️ I’m looking to collaborate on IT sphere
